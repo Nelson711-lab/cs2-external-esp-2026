@@ -1,1 +1,0 @@
-# cs2-external-esp-2026
